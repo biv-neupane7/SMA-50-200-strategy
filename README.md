@@ -1,0 +1,1 @@
+# SMA-50-200-strategy
